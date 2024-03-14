@@ -1,1 +1,1 @@
- inform-tica
+ informática 
