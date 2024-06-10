@@ -1,3 +1,9 @@
+apresentacao pessoal 
+![son](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/677814dc-523e-4bdd-9fa9-6cd3824d0db4)
+![son1](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/4302f671-1794-4eff-aaf1-7871b6921a91)
+![son2](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/bbc42ac5-c92e-47f6-adfc-a6972afbad11)
+
+
 Prova
  infor![image](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/ea9d0332-5bd6-4789-97d7-8dce400f0dd0)
 mática 
