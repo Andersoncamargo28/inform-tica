@@ -10,6 +10,16 @@
 ![son2](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/bbc42ac5-c92e-47f6-adfc-a6972afbad11)
 
 
+          Atividades 
+          ![son11](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/1b71a430-84c4-46fc-a1c7-7231375c564d)
+
+          ![son12](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/0a58b0e8-e52c-4aeb-8bec-6cd6a5eb5e92)
+
+          ![son14](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/2b41dd8a-c478-4ffd-8b50-7fe2ce059f8e)
+          
+
+
+
 
  infor![image](https://github.com/Andersoncamargo28/inform-tica/assets/162646985/ea9d0332-5bd6-4789-97d7-8dce400f0dd0)
 mática 
